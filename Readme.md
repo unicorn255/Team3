@@ -1,6 +1,8 @@
 Unsere Lieblings-Reiseziele
-1. Costa Rica
-2. ABC-Inseln
-3. Antarktis
-4. Mongolai
-5. 
+
+1. Mongolai
+2. Chile
+3. Costa de Marfil
+4. Takatukaland
+5. Niemerland
+6. Patagonia
